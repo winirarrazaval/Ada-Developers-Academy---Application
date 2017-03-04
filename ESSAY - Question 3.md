@@ -8,5 +8,5 @@ I am a woman of 32 years old, happily married, and proud mother of two little bo
 Each person has its story. Listen and love before judging. These basic simple principles are the ones I want live, practice and share with Ada’s community. Having lived the past 6 years outside my country of origin, I believe I know how it feels to be part of a minority, to be appreciated and value being welcomed. I mostly understand that while we are all different and unique, as Pink Floyd said:
 >“together we stand, divided we fall”
 
-and as Aristotle stated 
+and as Aristotle stated:
 >“The whole is greater than the sum of its parts”.  
