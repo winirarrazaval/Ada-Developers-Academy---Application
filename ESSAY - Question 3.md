@@ -7,7 +7,7 @@ I am a Jesuit oriented Christian educated, that above all believes in 3 values w
 2. RESPECT everyone.
 3. FORGIVE always. 
 
-Each person has its story. Listen and love before judging. These basic simple principles are the ones I want live, practice and share with Ada’s community with whom I am expectant and anxious to get to know and learn all about.
-Having lived the past 6 years outside my country of origin, I believe I know how it feels to be part of a minority, to be appreciated and value being welcomed.   
+Each person has its story. Listen and love before judging. These basic simple principles are the ones I want live, practice and share with Ada’s community with whom I am expectant and anxious to get to know and learn all about.  
+Having lived the past 6 years outside my country of origin, I believe I know how it feels to be part of a minority, to be appreciated and value being welcomed.    
 I mostly understand that while we are all different and unique, as Aristotle stated:
 >“The whole is greater than the sum of its parts”.  
